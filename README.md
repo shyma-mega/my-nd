@@ -1,1 +1,1 @@
-# my-nd
+# my-snd
